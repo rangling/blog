@@ -4,6 +4,10 @@ typora-copy-images-to: upload
 
 **注册美区id的方法**
 
+方法一、直接购买一个美区id：https://www.lin.place/?cid=1
+
+方法二、跟着下面步骤一步一步操作。
+
 **目录：**
 
 - [准备工作](#----)
