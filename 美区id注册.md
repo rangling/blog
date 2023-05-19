@@ -1,6 +1,3 @@
----
-typora-copy-images-to: upload
----
 
 **注册美区id的方法**
 
