@@ -12,7 +12,9 @@
 ### 2、支付宝充值美区ID
 
 ChatGPT APP 下载  https://apps.apple.com/app/openai-chatgpt/id6448311069
+
 chatGPT APP充值Plus：https://www.youtube.com/watch?v=2iEeUVhb96U
+
 支付宝充值美区Apple ID  https://youtu.be/W3chc223K-w (当然也可以苹果官网充值美区Apple ID  https://youtu.be/7nTXQr3_qMA)
 
 ### 3、登录ChatGPT
