@@ -21,4 +21,6 @@ chatGPT APP充值Plus：https://www.youtube.com/watch?v=2iEeUVhb96U
 
 打开用美区下载的ChatGPT，输入账号密码即可。
 
-如果没有账号去注册一下ChatGPT：ChatGPT 注册教程  https://youtu.be/NWJeRBMpsx8
+如果没有账号去购买一个：https://www.lin.place/?cid=1
+
+或者注册一下ChatGPT：ChatGPT 注册教程  https://youtu.be/NWJeRBMpsx8
