@@ -7,7 +7,9 @@
 
 ### 1、注册美区Apple ID
 
-免费注册美区 Apple ID   https://youtu.be/Y51VMx4NOfk
+买一个美区 Apple ID：https://www.lin.place/?cid=1
+
+或者自己注册美区 Apple ID   https://youtu.be/Y51VMx4NOfk
 
 ### 2、支付宝充值美区ID
 
