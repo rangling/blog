@@ -1,3 +1,7 @@
+如果你还没有ChatGPT/ChatGPT等人工智能账号请去购买：[24h自动发货(点击跳转)](https://www.lin.place/?cid=1)
+
+24h自动发货：https://www.lin.place/?cid=1
+
 <a name="index">**Index**</a>
 <a href="#0">🧠ChatGPT 中文调教指南</a>  
 &emsp;<a href="#1">ChatGPT能干什么? </a>  
